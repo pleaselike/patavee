@@ -1,3 +1,3 @@
-# My home
+# My homepage
 Pataveee Thanompatinya
-Helllo 
+Hello Everyone
